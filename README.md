@@ -1,2 +1,3 @@
-# Bosarwa-constitution
+# Kingdom of Bosarwa 
 Legal framework integrating international law and domestic land reform for the Kingdom of Bosarwa. Centers on native land restoration, transformation, and EWC, balancing historical dispossession with modern rights. Incorporates UN, ILO, ICJ, ICC, and global agency standards for indigenous governance and ecosystem restoration.
+Land reform and EWC; supranational indigenous constitutions; UN SDG ecosystem restoration; terminating the South African constitution via international courts (ICC/ICJ);Transition mapping out the restructuring from the current South African government and all African Government frameworks to the:       Kingdom of Bosarwa Ministries, and repatriating non-indigenous e.g Bantu and White-Boer populations to ancestral origins etc.
